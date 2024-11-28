@@ -1,4 +1,4 @@
-# Ochoa Tier 1 Week 4Week 4 class is remote via Google Meets. | [Video](https://vimeo.com/manage/videos/1034305284/119c6efbca)
+# Ochoa Tier 1 Week 4 | [Video](https://vimeo.com/manage/videos/1034305284/119c6efbca)
 
 ### Encourage people to work together
 
